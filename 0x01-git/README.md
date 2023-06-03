@@ -1,1 +1,1 @@
-It's beginning to make sense gradually even thought i missed the deadlines.
+It's beginning to make sense gradually even though i missed the deadlines.
